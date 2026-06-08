@@ -1,2 +1,3 @@
-makasih mas wisnu dan mas farhan
+makasih mas wahyu
+dan mas farhan
 
